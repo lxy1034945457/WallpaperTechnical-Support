@@ -1,1 +1,6 @@
-# WallpaperTechnical-Support
+"球库壁纸-高清主题锁屏墙纸" 是一个免费提供高清壁纸的平台
+
+球类高清精美壁纸，在线预览在线下载，应有尽有
+
+如有任何意见或建议，请与我们联系: "GC运动"官方电子邮件:wangxiupu01as@icloud.com
+
